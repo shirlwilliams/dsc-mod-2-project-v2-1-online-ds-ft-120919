@@ -133,7 +133,7 @@ If you're looking for a higher priced home in King County Washington you'll like
 * closer to Seattle, possibly in the Bellevue area
 * with a good construction grade
 * having a home with at least 2880 sq ft
-* If you want a waterfront home, it is likely higher priced.
+* If a waterfront home is desired, most are higher priced.
 
 
 # Future Options
